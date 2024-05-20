@@ -1,2 +1,2 @@
-# Dhiyanesh Startup Landing Page
+# Sano Startup Landing Page
 
